@@ -2,7 +2,7 @@
 
 Go play Hangman <http://tushartuteja.com/hangman>.
 
-Go Get inspured <http://daspir.com>
+Go Get inspired <http://daspir.com>
 
 Currently Building
 
