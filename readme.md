@@ -47,7 +47,6 @@ Bhagwad Gita
     - How Finance Works - Mihir A Desai
 
 ### Why Am I learning to play a piano ? 
-Short Vidoe to Answer That - How playing an instrument benefits your brain - Anita Collins
- [https://www.youtube.com/watch?v=R0JKCYZ8hng&feature=youtu.be]
+Short Vidoe to Answer That - [How playing an instrument benefits your brain - Anita Collins](https://www.youtube.com/watch?v=R0JKCYZ8hng&feature=youtu.be)
  
-10 Week Piano Progress Video - [https://www.instagram.com/tv/CEFEzGUDBcxlBer6wAxR6_7K6v7Q8o5j4vZS8k0/] 
+10 Week Piano Progress Video - [Playing Game of Thrones Theme Song](https://www.instagram.com/tv/CEFEzGUDBcxlBer6wAxR6_7K6v7Q8o5j4vZS8k0/)
